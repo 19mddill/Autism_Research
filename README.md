@@ -3,6 +3,7 @@ Autism Detection Bot in toddlers
 
 ## Data Collection Process
 - Screen Record
+- pin the git repo
 - Jot the link in README.md with clip time and footage name
 - save the footage with same name via shareX
 - later trim and upload it in drive
@@ -38,6 +39,10 @@ Autism Detection Bot in toddlers
 1. [toe_walking_001_0:00_0:03](https://www.tiktok.com/@happy_ville/video/7339563045728898336?q=toe%20walking%20autism&t=1760556558180)
 2. [toe_walking_002_0:03_0:07](https://www.tiktok.com/@amierabaharom/video/7193584478424485146?q=toe%20walking%20autism&t=1760556558180)
 3. [toe_walking_003_0:08_0:11](https://www.tiktok.com/@ausome_mavy21/video/7438903938994261255?q=toe%20walking%20autism&t=1760556558180)
+4. [toe_walking_004_0:05_0:08](https://www.youtube.com/shorts/Ll7vnNaToiM)
+5. [toe_walking_005_0:02_0:05](https://www.youtube.com/shorts/xfXZw5qnO7Q)
+6. [toe_walking_006_0:00_0:04](https://www.youtube.com/shorts/F5yK_V-igEY)
+7. [toe_walking_007_0:51_0:54](https://www.youtube.com/watch?v=pMxUlKdtPmg)
 ### Finger Clipping
 ### Spinning
 1. [spining_001_2:13_2:16](https://www.youtube.com/watch?v=VkOjea52SjY)
