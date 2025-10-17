@@ -33,6 +33,7 @@ Autism Detection Bot in toddlers
 15. [hand_flapping_015_0:34_0:36](https://www.tiktok.com/@aktifotakpenang/video/7460471909071932679?q=early%20signs%20of%20autistic&t=1760557375560)
 16. [hand_flapping_016_0:08_0:11](https://www.tiktok.com/@halfassedhippiemama/video/7315375240798850336?q=early%20signs%20of%20autistic&t=1760557375560)
 17. [hand_flapping_017_0:05_0:08](https://www.tiktok.com/@halfassedhippiemama/video/7315375240798850336?q=early%20signs%20of%20autistic&t=1760557375560)
+18. [hand_flapping_018_1:26_1:29](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
 ### Head Banging
 1. [head_banging_001_0:12_0:15](https://www.tiktok.com/@aqotas/video/7230037944109665562?q=early%20signs%20of%20autism&t=1760555188300)
 ### Toe Walking
@@ -46,7 +47,7 @@ Autism Detection Bot in toddlers
 ### Finger Cliping
 1. [finger_cliping_001_0:51_0:54](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
 2. [finger_clipping_002_1:17_1:20](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
-3. 
+3. [finger_cliping_003_1:26_1:29](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
 ### Spinning
 1. [spining_001_2:13_2:16](https://www.youtube.com/watch?v=VkOjea52SjY)
 2. [spining_002_0:18_0:21](https://www.tiktok.com/@katevitugph/video/7215770761720515845?q=early%20signs%20of%20autism&t=1760555188300)
