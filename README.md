@@ -55,6 +55,8 @@ Autism Detection Bot in toddlers
 7. [finger_cliping_007_1:23_1:25](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 8. [finger_cliping_008_1:27_1:30](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 9. [finger_cliping_009_1:31_1:33](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+10. [finger_cliping_010_1:35_1:38](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+11. 
 ### Spinning
 1. [spining_001_2:13_2:16](https://www.youtube.com/watch?v=VkOjea52SjY)
 2. [spining_002_0:18_0:21](https://www.tiktok.com/@katevitugph/video/7215770761720515845?q=early%20signs%20of%20autism&t=1760555188300)
