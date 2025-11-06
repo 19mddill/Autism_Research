@@ -39,6 +39,8 @@ Autism Detection Bot in toddlers
 17. [hand_flapping_017_0:05_0:08](https://www.tiktok.com/@halfassedhippiemama/video/7315375240798850336?q=early%20signs%20of%20autistic&t=1760557375560)
 18. [hand_flapping_018_1:29_1:31](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
 19. [hand__flapping_019_1:53_1:55](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+20. [hand__flapping_020_2:13_2:15](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+21. [hand__flapping_021_2:16_2:18](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 ### Head Banging
 1. [head_banging_001_0:12_0:15](https://www.tiktok.com/@aqotas/video/7230037944109665562?q=early%20signs%20of%20autism&t=1760555188300)
 2. [head_banging_002_1:34_1:37](https://www.youtube.com/watch?v=kkZPbGXD66Y&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq)
@@ -64,7 +66,13 @@ Autism Detection Bot in toddlers
 11. [finger_cliping_011_1:40_1:42](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 12. [finger_cliping_011_1:45_1:48](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 13. [finger_cliping_013_1:49_1:51](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
-14. [finger_cliping_013_2:00_2:03](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+14. [finger_cliping_014_2:00_2:03](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+15. [finger_cliping_015_2:04_2:06](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+16. [finger_cliping_016_2:06_2:08](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+17. [finger_cliping_017_2:11_2:13](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+18. [finger_cliping_018_2:16_2:18](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+19. [finger_cliping_019_2:22_2:24](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
+20. [finger_cliping_020_2:27_2:29](https://www.youtube.com/watch?v=VWmNcRO9tgk&list=PLy52jr2sWTQxVz7MOtupW721MdSMmZGaq&index=2)
 ### Spinning
 1. [spining_001_2:13_2:16](https://www.youtube.com/watch?v=VkOjea52SjY)
 2. [spining_002_0:18_0:21](https://www.tiktok.com/@katevitugph/video/7215770761720515845?q=early%20signs%20of%20autism&t=1760555188300)
