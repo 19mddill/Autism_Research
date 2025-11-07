@@ -1,7 +1,7 @@
 # Autism_Research
 Autism Detection Bot in toddlers
 
-# Footage Count: 54
+# Footage Count: 56
 
 ## Data Collection Process
 - Screen Record
