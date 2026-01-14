@@ -1,7 +1,7 @@
 # Autism_Research
 Autism Detection Bot in toddlers
 
-# Footage Count: 
+# Online Footage Count: 
 
 
 ### Hands Flapping
